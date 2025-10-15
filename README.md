@@ -1,0 +1,1 @@
+# Dividir-e-conquistar-Dupla27
